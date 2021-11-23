@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Zakai Scott
-- 👀 I’m interested in coding, parkour, and 
+- 👀 I’m interested in coding, parkour
 - 🌱 I’m currently learning coding, flying and parkour coaching
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me scott.zakai@gmail.com
